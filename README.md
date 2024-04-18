@@ -1,1 +1,1 @@
-Sofremos porem comitemos ABRE LOCADORA 1(4) 
+NÃO EXISTE LOCADORA (5) POIS ABOMINO O NUMERO 5 (ps: apaguei sem querer)
