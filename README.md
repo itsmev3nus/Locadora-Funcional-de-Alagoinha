@@ -1,1 +1,1 @@
-A VIDA É UMA MERDA NÃO VALE A PENA VIVER NELA ABRE O LOCADORA 8
+Simples ta tudo errado
